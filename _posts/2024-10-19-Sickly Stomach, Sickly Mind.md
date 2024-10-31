@@ -4,12 +4,9 @@ title: "Sickly Stomach, Sickly Mind"
 categories: Thought, thinker, & the prisoner of the self.
 ---
 
-Mind was exhausted for no reason at all, maybe its the junk food I am having for the past week and now it is surfacing as exhaustion. Today is no different. i just ate the oily street food when the wave of tiredness hit me. My head spined. My body was uncomfortable. My skin goes oily and itchy. I should have bathed this morning, i thought. The I thought to work and i am even more exhausted.
-
----
-I lay on my bed, felt the stiff muscle all over the body, my mind eased into the bed and the body stretched itself and I fell relaxed even more.
-I turned my head looked at the wall clock. It's one in the afternoon. I looked away, lied blank. The fan was fluttering. the clock was ticking.
-The sun was up and i was protected by a large tree that was blocking the sun.
+I lay on my bed, felt the stiff muscle all over the body, my mind eased into the bed and the body stretched itself from tip to toe and I relaxed even more.
+I turned my head, looked at the wall clock. It's one in the afternoon. I looked away, lied blank. The fan was fluttering. the clock was ticking.
+The sun was up and shining and I was protected by a large tree that was blocking the sun.uio
 winter is coming and the owner had chopped parts of its thick branch for the sunbaths for himself. <!-- its has the s because it is used in terms of belonging not verb. -->
 I looked at this freshly chopped thick branch, the wound was fresh and flies were onto it hovering around, sucking the life off it. Adjacent to the wound was another wounded but healed amputated branch. means it has suffered this before.
 
